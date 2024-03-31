@@ -1,0 +1,1 @@
+Classificação por estrelas!
